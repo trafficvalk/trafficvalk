@@ -1,16 +1,19 @@
-## Hi there 👋
-
-<!--
-**trafficvalk/trafficvalk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[//]:(ac: @No_04_KiKi on twt/x)
+[//]:(should you use this template, please do not remove the credits link. thank you!)
+‎ 
+‎ 
+‎ 
+‎ 
+‎ 
+‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𝜗𝜚　**name**𓈒　ᛝ﹕name⠀
+‎ ‎ ‎ ‎ ‎ ‎ prn ⠀ノ⠀!~prn~! ⠀⊹ ࣪ ˖ ⠀꒱⠀
+‎ ‎ ‎ ‎ ➴⠀![](https://i.postimg.cc/Dz0FjHy4/Tumblr-l-153752509004367.gif)⠀⠀txt⠀txt⠀txt⠀⠀꒷꒦
+‎ ‎ ‎ ‎ ‎ ❝ ── .✦⠀⠀!~default;dotted;[creds](verguletto)~! 𓈒⠀![](https://i.postimg.cc/tTVby66X/Tumblr-l-153789362607374.gif)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ **[01](linkhere)** 𓈒⠀⠀!~**[02](linkhere)**~! 𓈒
+‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀](linkhere)
+‎ 
+‎ 
+‎
